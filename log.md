@@ -10,3 +10,6 @@
 
 ![image-20211009224218066](C:\Users\Yang\AppData\Roaming\Typora\typora-user-images\image-20211009224218066.png)
 
+10.10
+
+经过讨论，我们选择自己成为艺术家。
